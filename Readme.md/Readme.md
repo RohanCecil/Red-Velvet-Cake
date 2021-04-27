@@ -1,0 +1,3 @@
+The recipe is on a red velvet cake there are many ways to make a red velvet cake.
+But first we need to know what a red velvet cake is,  Red velvet cake has an acidic taste that comes from the use of buttermilk and vinegar as well as the cream cheese in the frosting. The acidity is balanced out by the sweetness of the cake itself. It also has cocoa powder added to it for a mild chocolate flavoring.
+Red velvet cake, once a reasonably tender, softly flavored culinary gimmick, has become a national commercial obsession, its cocoa undertones and cream-cheese tang recreated in chemical flavor laboratories and infused into all manner of places cake should not exist.
